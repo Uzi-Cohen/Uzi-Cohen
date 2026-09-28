@@ -63,4 +63,4 @@ At every company I've also covered customer and IT support, so I'm used to being
 ## Get in touch
 
 <!-- TODO: replace with your real links -->
-[LinkedIn](https://www.linkedin.com/in/YOUR-LINK) · [Email](mailto:YOUR-EMAIL)
+[LinkedIn](https://www.linkedin.com/in/uzicohen0225/) · [Email](uzicohenqa@gmail.com)
